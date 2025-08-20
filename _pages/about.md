@@ -11,5 +11,5 @@ Hello! I am a PhD candidate at MIT's Department of Urban Studies and Planning. M
 
 Part of my work focuses on understanding how digital real estate technologies impact the landlord-tenant relationship, facilitate global flows of housing investment, and affect the experience of residents. U takes a multidisciplinary approach, drawing from scholarship in political economy, urban planning, geography, and history, with particular attention to local context and histories of racism and racialization in access to urban space and housing.
 
-Before coming to MIT, I worked as an public health researcher and patient educator at the University of Chicago. She holds a Bachelor’s degree in Biology and Philosophy from University of Chicago and a Master in City Planning from MIT. 
+Before coming to MIT, I worked as a public health researcher and patient educator in a women's health clinic at the University of Chicago. I completed my undergraduate studies at the University of Chicago as well, where I double-majored in Philosophy and Biology. I also hold a Masters in City Planning from MIT. 
 -
